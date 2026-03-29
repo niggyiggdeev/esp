@@ -3,9 +3,9 @@ Eaglercraft Semen Protocol is a top notch protocol that makes Eaglercraft server
 
 Not backdoored, trusted by top eaglercraft hacked client and normal client developers and skids such as:
 
-Lax1dude (my beloved)
-Nuraad
-Zumbiepig (skid)
+Lax1dude (my beloved)<br>
+Nuraad <br>
+Zumbiepig (Bum skid)<br>
 
 
 used by archmc and clever teaching !!!
